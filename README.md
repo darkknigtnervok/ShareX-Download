@@ -1,5 +1,5 @@
 
-# Free Download Latest Version ShareX
+# Free Download Latest Version ShareX 2025
 
 > [!TIP]
 > *How to download:*
